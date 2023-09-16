@@ -1,0 +1,2 @@
+- Hi, I’m Ethan @emm4693
+- University Student at Kansas State University studying Electrical Engineering
